@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+https://i.postimg.cc/2576Qf9H/2026-01-03-0qy-Kleki.png
 <!--
 **redisokay/redisokay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
