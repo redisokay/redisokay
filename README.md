@@ -1,4 +1,5 @@
 ## ultra mega wip
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bungee&size=17&duration=5100&pause=300&color=F73D2C&center=true&width=435&lines=My+daddy+told+me+to+stay+away;If+I+saw+situations+like+today;But+would+I+suffer+if+I+disobey%3F+;Or+should+I+listen+to+what+daddy+says%3F" alt="Typing SVG" /></a>
 [![2026-01-03-0qy-Kleki.png](https://i.postimg.cc/2576Qf9H/2026-01-03-0qy-Kleki.png)](https://postimg.cc/p9yRv3H8)
 <!--
 **redisokay/redisokay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
