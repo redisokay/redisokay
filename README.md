@@ -1,7 +1,7 @@
 ## ultra mega wip
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gochi+Hand&size=17&duration=5100&pause=300&color=F73D2C&center=true&width=435&lines=MY+DADDY+TOLD+ME+TO+STAY+AWAY;IF+I+SAW+SITUATIONS+LIKE+TODAY;BUT+WOULD+I+SUFFER+IF+I+DISOBEY%3F+;OR+SHOULD+I+LISTEN+TO+WHAT+DADDY+SAYS%3F+;...;...;...;...;..." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gochi+Hand&size=17&duration=5100&pause=300&color=F73D2C&center=true&width=435&lines=MY+DADDY+TOLD+ME+TO+STAY+AWAY;IF+I+SAW+SITUATIONS+LIKE+TODAY;BUT+WOULD+I+SUFFER+IF+I+DISOBEY%3F+;OR+SHOULD+I+LISTEN+TO+WHAT+DADDY+SAYS%3F+;HE+SAYS...;...;...;...;...;..." alt="Typing SVG" /></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gochi+Hand&size=17&duration=5100&pause=300&color=F73D2C&center=true&width=435&lines=...;...;...;...;HE+SAYS...;TWO'S+A+PARTY+BUT+THREE+IS+A+CROWD;MY+DADDY+TOLD+ME+THAT+THREE'S+NOT+ALLOWED;BUT+AM+I+WINNING+IF+I+WALK+INTO+A+ROOM;WITH+THE+SCENT+OF+EVIL+DOOM%3F;I+THINK+I'LL+LISTEN+TO+MY+DADDY+TODAY..." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gochi+Hand&size=17&duration=5100&pause=300&color=F73D2C&center=true&width=435&lines=...;...;...;...;...;TWO'S+A+PARTY+BUT+THREE+IS+A+CROWD;MY+DADDY+TOLD+ME+THAT+THREE'S+NOT+ALLOWED;BUT+AM+I+SINNING+IF+I+WALK+INTO+A+ROOM%2C+;WITH+THE+SCENT+OF+EVIL+DOOM%3F+;I+THINK+I'LL+LISTEN+TO+MY+DADDY+TODAY..." alt="Typing SVG" /></a>
 
 [![2026-01-03-0qy-Kleki.png](https://i.postimg.cc/2576Qf9H/2026-01-03-0qy-Kleki.png)](https://postimg.cc/p9yRv3H8)
 <!--
@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-https://readme-typing-svg.demolab.com/demo/?font=Gochi+Hand&size=17&duration=5100&pause=300&color=F73D2C&center=true&lines=MY+DADDY+TOLD+ME+TO+STAY+AWAY;IF+I+SAW+SITUATIONS+LIKE+TODAY;BUT+WOULD+I+SUFFER+IF+I+DISOBEY%3F+;OR+SHOULD+I+LISTEN+TO+WHAT+DADDY+SAYS%3F+;...;...;...;...;...
+https://readme-typing-svg.demolab.com/demo/?
