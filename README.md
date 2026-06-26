@@ -1,4 +1,9 @@
-
+[STRAWPAGE](https://redisok.straw.page)
+[ATABOOK](https://redisok.atabook.org/)
+[TUMBLR](https://redisok.straw.page)
+[BLUESKY](https://redisok.bsky.social)
+[MY TEXTWALL](https://walloftext.co/redisok)
+[DW TEXTWALL](https://walloftext.co/dandysworld)
 <!--
 | Cool People, Go follow!  |
 |:---------------------------|
