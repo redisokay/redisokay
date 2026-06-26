@@ -1,6 +1,12 @@
-## ultra mega wip
-![a](https://files.catbox.moe/e2ecf1.gif)![a](https://files.catbox.moe/e2ecf1.gif)
 
-[![done-gif-8e6bc544f92332395c25ef8ac4b724e7.gif](https://i.postimg.cc/MTk15S7J/done-gif-8e6bc544f92332395c25ef8ac4b724e7.gif)](https://postimg.cc/5H3H9DKs)
+<!--
+| Cool People, Go follow!  |
+|:---------------------------|
+| Not a moot board, just a bunch of <br/>people I think are cool..! msg to be <br/>removed if unwanted |
+| @p0kerchips  |
+| @zackingaround  |
+| @megalodontia |
+| @trixxitreatz |
 
-![a](https://files.catbox.moe/e2ecf1.gif)![a](https://files.catbox.moe/e2ecf1.gif)
+
+
