@@ -8,7 +8,7 @@
 
 | Cool People, Go follow!  |
 |:---------------------------|
-| A bunch of people I think are cool!<br/>Go check out their profiles NOWW msg to be <br/>removed if unwanted! |
+| A bunch of people I think are cool!<br/>Go check out their profiles NOWW<br/>msg to be removed if unwanted!<br/>Hopefully this becomes really long |
 | @p0kerchips |
 | casin0games |
 | @solarx-luvr |
