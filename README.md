@@ -10,6 +10,8 @@
 |:---------------------------|
 | A bunch of people I think are cool!<br/>Go check out their profiles NOWW msg to be <br/>removed if unwanted! |
 | @p0kerchips ★ |
+| casin0games ★ |
+| @solarx-luvr ★ |
 | @d3rlord3kisser |
 | @zackingaround  |
 | @megalodontia |
