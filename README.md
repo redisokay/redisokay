@@ -14,11 +14,13 @@
 | @solarx-luvr |
 | @d3rlord3kisser |
 | @PESKYMAILMAN |
+| Sunr4yss / fishfoody |
 | @zackingaround  |
 | @megalodontia |
 | @trixxitreatz |
 | @raqebait <- 's ART IS SO GOOD!! |
 | @zuzakablblan |
+| @twistedvee |
 
 
 
