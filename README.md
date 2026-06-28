@@ -14,7 +14,7 @@
 | @solarx-luvr |
 | @d3rlord3kisser |
 | @PESKYMAILMAN |
-| Sunr4yss / fishfoody |
+| @Sunr4yss / @fishfoody |
 | @zackingaround  |
 | @megalodontia |
 | @trixxitreatz |
