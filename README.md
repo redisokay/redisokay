@@ -10,13 +10,15 @@
 |:---------------------------|
 | A bunch of people I think are cool!<br/>Go check out their profiles NOWW<br/>msg to be removed if unwanted!<br/>Hopefully this becomes really long |
 | @p0kerchips |
-| casin0games |
+| @casin0games |
 | @solarx-luvr |
 | @d3rlord3kisser |
+| @PESKYMAILMAN |
 | @zackingaround  |
 | @megalodontia |
 | @trixxitreatz |
 | @raqebait <- 's ART IS SO GOOD!! |
+| @zuzakablblan |
 
 
 
