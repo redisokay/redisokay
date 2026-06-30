@@ -14,15 +14,15 @@
 | [@casin0games](https://github.com/casin0games) |
 | [@solarx-luvr](https://github.com/solarx-luvr) |
 | [@d3rlord3kisser](https://github.com/d3rlord3kisser) |
-| [@PESKYMAILMAN](https://github.com/PESKYMAILMAN) |
+| [@PESKYMAILMAN](https://github.com/PESKYMAILMAN) ★ |
 | [@Sunr4yss](https://github.com/Sunr4yss) / [@fishfoody](https://github.com/fishfoody) |
-| @zackingaround  |
-| @megalodontia |
-| @trixxitreatz |
-| @raqebait <- 's ART IS SO GOOD!! |
-| @zuzakablblan |
-| @twistedvee |
-| @lov3wires |
+| [@zackingaround](https://github.com/zackingaround)|
+| [@megalodontia](https://github.com/megalodontia) |
+| [@trixxitreatz](https://github.com/trixxitreatz) |
+| [@raqebait](https://github.com/raqebait) <- 's ART IS SO GOOD!! |
+| [@zuzakablblan](https://github.com/zuzakablblan) |
+| [@twistedvee](https://github.com/twistedvee) |
+| [@lov3wires](https://github.com/lov3wires) |
 </p>
 
 
