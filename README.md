@@ -6,6 +6,7 @@
 [MY TEXTWALL](https://walloftext.co/redisok)
 [DW TEXTWALL](https://walloftext.co/dandysworld)
 
+<img align="right" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/Untitled65_20260630114532.png" alt="My artfight showoff cough"> <br/>
 | Cool People, Go follow!  |
 |:---------------------------|
 | A bunch of people I think are cool!<br/>Go check out their profiles NOWW<br/>msg to be removed if unwanted!<br/>Hopefully this becomes really long |
@@ -22,6 +23,6 @@
 | @zuzakablblan |
 | @twistedvee |
 | @lov3wires |
-
+</p>
 
 
