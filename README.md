@@ -18,7 +18,7 @@
 | [@Sunr4yss](https://github.com/Sunr4yss) / [@fishfoody](https://github.com/fishfoody) |
 | [@zackingaround](https://github.com/zackingaround)|
 | [@megalodontia](https://github.com/megalodontia) |
-| [@trixxitreatz](https://github.com/trixxitreatz) |
+| [@PARTYPUPPYY](https://github.com/PARTYPUPPYY) |
 | [@raqebait](https://github.com/raqebait) <- 's ART IS SO GOOD!! |
 | [@zuzakablblan](https://github.com/zuzakablblan) |
 | [@twistedvee](https://github.com/twistedvee) |
