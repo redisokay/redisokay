@@ -4,7 +4,7 @@
 [TUMBLR](https://www.tumblr.com/blog/redisokk)
 [BLUESKY](https://redisok.bsky.social)
 
-[<img align="right" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/Untitled65_20260630114532.png" alt="My artfight showoff cough">](https://artfight.net/~redisok) ps i will amke this cooler soon <br/>
+[<img align="right" width="500" src="https://file.garden/agIYfQeM_iHVXhgb/Untitled65_20260630114532.png" alt="My artfight showoff cough">](https://artfight.net/~redisok) ps i will amke this cooler soon - i dont play PT as often nowadays but ill be more active by november! <br/>
 | Cool People, Go follow!  |
 |:---------------------------|
 | A bunch of people I think are cool!<br/>Go check out their profiles NOWW<br/>msg to be removed if unwanted!<br/>Hopefully this becomes really long |
